@@ -1,0 +1,1 @@
+# Automatyzacja-Analizy-Konspekt-w-Harcerskich
