@@ -1,1 +1,1 @@
-# Automatyzacja-Analizy-Konspekt-w-Harcerskich
+# Automatyzacja Analizy Konspektów Harcerskich
